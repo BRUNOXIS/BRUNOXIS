@@ -1,5 +1,5 @@
 - 👋 Opa,Eu Sou O Bruno
 - 👀 Eu  Tenho Enteresse Em Tecnologia
 - 🌱 Atualmente Eu Estou Estudando E Aprendendo Pensamento Computacional
-- 💞️ Estou Na Preocura De Poder Contribuir E Colaborar Com Os Alunos Que Não Sabem Mecher Muito Com Coisas Tecnologicas
+- 💞️ Estou Na Preocura De Poder Contribuir E Colaborar Com Os Meus Colegas Que Não Sabem Mecher Muito Com Coisas Tecnologicas E Ta Sempre  Ajudando Quem Precisar De Ajuda
 - 📫 Para Chegar Até Mim É Só Ir No Instagram @bnnzffx
