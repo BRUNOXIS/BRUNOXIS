@@ -2,4 +2,4 @@
 - 👀 Eu  Tenho Enteresse Em Tecnologia
 - 🌱 Atualmente Eu Estou Estudando E Aprendendo Pensamento Computacional Do 1-E Do Ensino Médio
 - 💞️ Estou Na Preocura De Poder Contribuir E Colaborar Com Os Meus Colegas Que Não Sabem Mecher Muito Com Coisas Tecnologicas E Ta Sempre  Ajudando Quem Precisar De Ajuda
-- 📫 Para Chegar Até Mim É Só Ir No Instagram @bnnzffx
+- 📫 Para Chegar Até Mim É Só Ir No Instagram @olc_brunin
